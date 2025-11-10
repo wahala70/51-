@@ -3,7 +3,6 @@
 
 商务合作联系电报（Telegram）
 官方TG群https://t.me/+NjPNIi365RAzNDE9
-官方商务TG https://t.me/henryqiao
 
 分享有你
 1、请把网址、TG群分享给身边需要的小伙伴，您的分享转发是我们前进的动力！！！
